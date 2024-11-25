@@ -1,6 +1,6 @@
 👋 Azra (ou Chrysanthème !)  
 😃 Salut ! Je suis Azra, une étudiante en ingénierie passionnée par l'art, la technologie et la diversité créative.  
-🌈 Orientation : Aroace et fièrement lesbienne |  ⚧ Genre : Trans (al/elle/il) | 🌍 Ethnicité : Franco-algérienne  
+🌈 Orientation : a-specs & queer |  ⚧ Genre : Trans (al/elle/il) | 🌍 Ethnicité : Franco-algérienne  
 
 👀 Mes passions incluent :  
 - **Technologie** : Je suis fasciné.e par le monde numérique, les bugs à résoudre, et l'innovation !  
