@@ -19,4 +19,4 @@
 🗨️ Si tu veux discuter ou échanger des idées, n’hésite pas à me contacter sur Discord (azchrysantheme) ou par mail : azra.marwe@mailfence.com ! Je serais ravi.e de discuter de n'importe quel sujet ou de partager des conseils !  
 🎈 N'hésite pas à me poser des questions sur mes projets ou sur n'importe quel sujet qui t'intéresse. Je suis ici pour aider et apprendre avec vous !  
 
-🔍 Pour explorer mes projets et mes pensées, consulte mon GitHub – un mélange de créativité et de chaos, où chaque jour est une nouvelle aventure ! 🌟
+🔍 Pour explorer mes projets et mes pensées, consulte mon GitHub 🌟
